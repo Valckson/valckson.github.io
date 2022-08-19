@@ -3,4 +3,4 @@
 
 ## Member', this site is still a W.I.P, so be patient for the final product.
 
-## [My Youtube !] (https://www.youtube.com/channel/UCSCiafkKKhfZ07DDh-VKVzQ)
+## [My Youtube !](https://www.youtube.com/channel/UCSCiafkKKhfZ07DDh-VKVzQ)
